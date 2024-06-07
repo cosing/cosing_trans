@@ -1,0 +1,9 @@
+# ICE
+
+![以万物冰封的世界为背景的故事，不同于司空见惯的夜空，极光婀娜成型，如火焰般摇曳的刺骨寒气和缤纷的穹顶，世界化作无法逃离的酷寒牢狱...“冰 漆黑的封面，但是边缘是白色的 有点时髦呢” 哎这个封面是在用黑白表现困在冰雪绝境中的黑暗世界](./assets/cover.jpg)
+
+ANNA KAVAN (1901–1968) was born Helen Woods. She began her career writing under her married name Helen Ferguson, publishing six novels. It was only after she had a nervous breakdown that she became Anna Kavan, the protagonist of her 1930 novel Let Me Alone, with an outwardly different persona and a new literary style. Much of her life remains an enigma, but her talent was nonetheless remarkable, and her works have been compared to those of Doris Lessing, Virginia Woolf, and Franz Kafka. Kavan suffered periodic bouts of mental illness and long-term drug addiction—she became addicted to heroin in the 1920s and continued to use it throughout her life—and these facets of her life feature prominently in her work. Her widely admired works include Asylum Piece, I Am Lazarus, and Julia and the Bazooka (published posthumously). She died in 1968 of heart failure, soon after the publication of her most celebrated work, Ice.  
+
+JONATHAN LETHEM is the New York Times bestselling author of nine novels, including Dissident Gardens, Chronic City, The Fortress of Solitude, and Motherless Brooklyn, and of the essay collection The Ecstasy of Influence, which was a National Book Critics Circle Award finalist. A recipient of the MacArthur Fellowship and winner of the National Book Critics Circle Award for Fiction, Lethem’s work has appeared in The New Yorker, Harper’s Magazine, Rolling Stone, Esquire, and The New York Times, among other publications.  
+
+KATE ZAMBRENO is the author of the novels Green Girl and O Fallen Angel, as well as two works of experimental nonfiction, Heroines and Book of Mutter. She is at work on a series of books about time, memory, and the persistence of art. She teaches in the writing programs at Sarah Lawrence College and Columbia University.  
