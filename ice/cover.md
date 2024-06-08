@@ -1,6 +1,6 @@
 # ICE
 
-![以万物冰封的世界为背景的故事，不同于司空见惯的夜空，极光婀娜成型，如火焰般摇曳的刺骨寒气和缤纷的穹顶，世界化作无法逃离的酷寒牢狱...“冰 漆黑的封面，但是边缘是白色的 有点时髦呢” 哎这个封面是在用黑白表现困在冰雪绝境中的黑暗世界](./assets/cover.jpg)
+![以万物冰封的世界为背景的故事，不同于司空见惯的夜空，极光婀娜成型，如火焰般摇曳的刺骨寒气和缤纷的穹顶，世界化作无法逃离的酷寒牢狱...“冰 漆黑的封面，但是边缘是白色的 有点时髦呢” 哎这个封面是在用黑白表现困在冰雪绝境中的黑暗世界](../assets/cover.jpg)
 
 ANNA KAVAN (1901–1968) was born Helen Woods. She began her career writing under her married name Helen Ferguson, publishing six novels. It was only after she had a nervous breakdown that she became Anna Kavan, the protagonist of her 1930 novel Let Me Alone, with an outwardly different persona and a new literary style. Much of her life remains an enigma, but her talent was nonetheless remarkable, and her works have been compared to those of Doris Lessing, Virginia Woolf, and Franz Kafka. Kavan suffered periodic bouts of mental illness and long-term drug addiction—she became addicted to heroin in the 1920s and continued to use it throughout her life—and these facets of her life feature prominently in her work. Her widely admired works include Asylum Piece, I Am Lazarus, and Julia and the Bazooka (published posthumously). She died in 1968 of heart failure, soon after the publication of her most celebrated work, Ice.  
 安娜-卡万（1901-1968 年）出生于海伦-伍兹。她以婚后的名字海伦-弗格森（Helen Ferguson）开始写作生涯，共出版了六部小说。直到她精神崩溃后，她才成为安娜-卡万，即 1930 年小说《让我一个人》中的主人公，她拥有了不同的外在形象和新的文学风格。她的大部分人生经历至今仍是一个谜，但她才华横溢，其作品被拿来与多丽丝-莱辛、弗吉尼亚-伍尔夫和弗朗茨-卡夫卡的作品相提并论。卡万患上精神疾病，并长期吸毒成瘾--她在 20 世纪 20 年代开始吸食海洛因，并终生未戒。她的作品广受推崇，包括《精神病院小品》、《我是拉撒路》和《朱莉娅和火箭筒》（死后出版）。1968 年，在她最著名的作品《冰》出版后不久，她因心脏衰竭去世。
