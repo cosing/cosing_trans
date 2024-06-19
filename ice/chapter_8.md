@@ -35,5 +35,3 @@ I could not make up my mind whether to cross the frontier or to stay where I was
 But I was becoming tired of the work here now that everything was running smoothly. I was tired of trying to keep dry in the perpetual rain, tired of waiting to be overtaken by ice. Day by day the ice was creeping over the curve of the earth, unimpeded by seas or mountains. Without haste or pause, it was steadily moving nearer, entering and flattening cities, filling craters from which boiling lava had poured. There was no way of stopping the icy giant battalions, marching in relentless order across the world, crushing, obliterating, destroying everything in their path.  
 
 I made up my mind to go. Without telling anyone, in the drenching rain, I drove to the blocked pass, and from there found my way over the tree-covered mountains on foot. I had only a pocket compass to guide me. It took me several hours of climbing and struggling through wet vegetation to reach the frontier station, where I was detained by the guard.  
-
-

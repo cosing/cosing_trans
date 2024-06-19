@@ -45,5 +45,3 @@ She was afraid of me, but her hostility continued unchanged. Her white, stubborn
 She grew emaciated, the flesh seemed to melt off her bones. Her hair lost its glitter, was too heavy, weighed her head down. She kept her head bent, trying not to see me. Listless, she hid in corners or, avoiding me, staggered round the ship, stumbling, her weak legs unable to balance. I no longer felt any desire, gave up talking to her, adopted the warden’s silences as my own. I was well aware how sinister my wordless exits and entrances must have seemed, and derived some satisfaction from this.  
 
 We were near the end of the journey.  
-
-

@@ -41,5 +41,3 @@ When a far-off sound roused me it was almost dark. In the distance a semicircle 
 The cold water revived me. Somehow or other I managed to reach the park gates, even started walking along a street, but collapsed after a short distance. A carload of noisy young people coming back from a celebration saw me lying in the road and stopped to investigate. They thought I was one of their party who had fallen down drunk. I persuaded them to drive me to the hospital, where a doctor attended to me. I invented some story to account for my injuries and was given a bed in the casualty department. I slept for two or three hours. The clanging bell of an ambulance woke me. Stretcherbearers came tramping in. To move was appallingly difficult, all I wanted was to lie still and go on sleeping. But I knew it was too dangerous, I dared not stay any longer.  
 
 While the night staff were occupied with the new arrival, I crept through a side door into a dark corridor and left the building.  
-
-

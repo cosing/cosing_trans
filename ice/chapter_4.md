@@ -35,5 +35,3 @@ He told me to stay where I was for a minute while he explained the situation to 
 Left out there in the semi-darkness, I felt gloomy and irritated. He seemed to have got the better of me by a trick. Nothing satisfactory to myself could come of an interview arranged and introduced by him. Most probably it would not materialize at all; either she would refuse to see me, or he would forbid her to do so. In any case, I did not want to talk to her in his presence, when she would be under his influence.  
 
 I listened, but could hear nothing through the soundproofed wall. After some moments I went down the stairs and wandered round dark passages until I met a servant who showed me the way out. My lucky period certainly seemed to be over.  
-
-

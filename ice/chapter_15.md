@@ -65,5 +65,3 @@ The world seemed to have come to an end already. It did not matter. The car had 
 A terrible cold world of ice and death had replaced the living world we had always known. Outside there was only the deadly cold, the frozen vacuum of an ice age, life reduced to mineral crystals; but here, in our lighted room, we were safe and warm. I looked into her face, it was smiling, untroubled; I could see no fear, no sadness there now. She smiled and pressed close, content with me in our home.  
 
 I drove at great speed, as if escaping, pretending we could escape. Although I knew there was no escape from the ice, from the ever-diminishing remnant of time that encapsuled us. I made the most of the minutes. The miles and the minutes flew past. The weight of the gun in my pocket was reassuring.  
-
-

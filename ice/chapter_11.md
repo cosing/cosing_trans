@@ -25,5 +25,3 @@ Action was needed to drive away this unpleasant feeling. I put my hand on the do
 There was still a little time left. I rang for a bottle of Scotch and sat drinking. I felt uncertain, divided in myself. My bag was already packed and had been taken downstairs. In a few minutes I would have to follow . . . unless I changed my plans, stayed here after all . . . I remembered that I had not said good-bye, wondered whether to go back, could not make up my mind. I was still undecided when it was time to go.  
 
 I had to pass her door again on the way down. I hesitated outside it for a second, then hurried on to the lift. Of course I was leaving. Only a madman would waste this almost miraculous chance of getting away. I could not possibly hope for another.  
-
-
